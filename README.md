@@ -1,4 +1,4 @@
-# Hi there, I'm Kowshika! 
+# Hi there, I'm Kowshika R! 
 
 ### Information Technology Student | Aspiring Software Developer
 
